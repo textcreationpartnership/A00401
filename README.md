@@ -35,9 +35,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The triall of true friendship or perfit mirror, wherby to discerne a trustie friend from a flatterin
+
+1. 〈…〉Walter Flude, Gentleman V.S. wiſheth all happineſſe.
+
 #####Body#####
-The triall of true friendship or perfit mirror, wherby to discerne a trustie friend from a flatterin
+
+1. The triall of true Friendſhip, Or, A Knacke to know a knaue from an honest man.
+
 **Types of content**
 
   * There are 2 **verse** lines!
